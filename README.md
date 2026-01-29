@@ -1,6 +1,6 @@
 # Odysseon´t
  
-La cueva y la decisión que no se siente “bien”
+# La cueva y la decisión que no se siente “bien”
 
 Llegamos a una isla y encontramos una cueva llena de cosas: comida, leche, queso, ovejas. Mis hombres se emocionaron demasiado rápido, como “esto es suerte”. Yo no. Yo vi detalles.
 
