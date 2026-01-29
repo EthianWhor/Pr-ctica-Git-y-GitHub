@@ -11,9 +11,5 @@ Pero no había magia. Tocó hacerlo a lo simple: esperar hasta la mañana.
 Nos escondimos, nos calmamos, y cuando las ovejas salieron, hicimos lo de amarrarnos debajo. Eso sí. Funciona igual.
 La diferencia fue el final: nadie gritó, nadie insultó, nadie se puso a celebrar. Yo no quería que ese momento se volviera una historia que viajará sola. No quería que mis hombres fueran contando “¿saben a quién matamos?” como si eso fuera un trofeo.
 En la historia normal, el cíclope vivo termina gritando, pidiendo venganza, rezando a Poseidón, y ya queda todo marcado.
-Aquí no. Aquí no hubo “llamado” directo.
-Y lo sentí de una forma muy simple: el mar seguía siendo peligroso, pero ya no sentía que me estuviera persiguiendo por nombre y apellido.
-Eso sí: mis hombres siguieron siendo mis hombres. Llegamos donde Eolo, el de los vientos, y él nos dio el saco con los vientos guardados para ayudarnos a llegar.
-Yo estaba feliz porque de verdad pensé: listo, esta vez sí.
-Y como a dos pasos de Ítaca… mis hombres abrieron el saco porque pensaron que yo estaba guardando algo valioso. Eso me dio una frustración horrible. Porque fue como: yo controlé mi ego… pero no puedo controlar el de todos.
-El viento nos devolvió, nos sacudió, y yo ahí dije: bueno, entonces esto igual va a ser difícil, solo que de otra forma.
+Aquí no. Aquí no hubo “llamado” directo y lo sentí de una forma muy simple: el mar seguía siendo peligroso, pero ya no sentía que me estuviera persiguiendo por nombre y apellido.
+Eso sí: mis hombres siguieron siendo mis hombres. Llegamos donde Eolo, el de los vientos, y él nos dio el saco con los vientos guardados para ayudarnos a llegar yo estaba feliz porque de verdad pensé: listo, esta vez sí y como a dos pasos de Ítaca… mis hombres abrieron el saco porque pensaron que yo estaba guardando algo valioso. Eso me dio una frustración horrible. Porque fue como: yo controlé mi ego… pero no puedo controlar el de todos el viento nos devolvió, nos sacudió, y yo ahí dije: bueno, entonces esto igual va a ser difícil, solo que de otra forma.
