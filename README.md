@@ -1,29 +1,9 @@
 # Odysseon´t
  
-La cueva y la decisión que no se siente “bien”
+# La cueva y la decisión que no se siente “bien
+Llegamos a una isla y encontramos una cueva llena de cosas: comida, leche, queso, ovejas. Mis hombres se emocionaron demasiado rápido, como “esto es suerte”. Yo no. Yo vi detalles había huesos tirados. Y no era “un huesito”, era esa sensación de que ahí habían pasado cosas feas igual entramos (porque sí, también fue culpa mía por dejar que se metieran). Y al rato llegó el cíclope el tipo era… demasiado grande. Y lo peor es que no se movía como un animal, se movía como alguien que hace eso todos los días. Cerró la entrada con una roca y listo: quedamos encerrados cuando agarró al primero de mis hombres y lo mató como si nada, se me apagó esa parte de la cabeza que todavía quería creer que esto era “una aventura” mis hombres me miraron esperando el plan y yo tuve ese micro-momento de ego donde pensé: puedo hacerlo como siempre, puedo hacer mi jugada y quedar como el crack pero me acordé del “mátalo al inicio”. Me acordé de la idea completa: si lo dejo vivo, esto se vuelve personal con Poseidón entonces hice lo más práctico: lo entretuve. Le di vino fuerte. Lo dejé confiarse. Esperé a que se durmiera y cuando se durmió… ahí fue donde todo se puso serio. Porque una cosa es pensar “lo voy a hacer” y otra cosa es hacerlo de verdad no lo hice bonito, ni épico, ni con discurso. Fue rápido. Sin drama. Solo lo que tocaba para que no tuviera oportunidad de pedir ayuda a nadie, ni de gritar nombres, ni de armar un lío divino mis hombres quedaron como… raros. Aliviados, sí, pero también como con esa sensación de “ok, esto ya no es un juego” y justo ahí vino el problema inmediato: la roca. Porque el cíclope muerto no iba a mover nada.
 
-Llegamos a una isla y encontramos una cueva llena de cosas: comida, leche, queso, ovejas. Mis hombres se emocionaron demasiado rápido, como “esto es suerte”. Yo no. Yo vi detalles.
-
-Había huesos tirados. Y no era “un huesito”, era esa sensación de que ahí habían pasado cosas feas.
-
-Igual entramos (porque sí, también fue culpa mía por dejar que se metieran). Y al rato llegó el cíclope.
-
-El tipo era… demasiado grande. Y lo peor es que no se movía como un animal, se movía como alguien que hace eso todos los días. Cerró la entrada con una roca y listo: quedamos encerrados.
-
-Cuando agarró al primero de mis hombres y lo mató como si nada, se me apagó esa parte de la cabeza que todavía quería creer que esto era “una aventura”.
-
-Mis hombres me miraron esperando el plan.
-
-Y yo tuve ese micro-momento de ego donde pensé: puedo hacerlo como siempre, puedo hacer mi jugada y quedar como el crack.
-
-Pero me acordé del “mátalo al inicio”. Me acordé de la idea completa: si lo dejo vivo, esto se vuelve personal con Poseidón.
-
-Entonces hice lo más práctico: lo entretuve. Le di vino fuerte. Lo dejé confiarse. Esperé a que se durmiera.
-
-Y cuando se durmió… ahí fue donde todo se puso serio. Porque una cosa es pensar “lo voy a hacer” y otra cosa es hacerlo de verdad.
-
-No lo hice bonito, ni épico, ni con discurso. Fue rápido. Sin drama. Solo lo que tocaba para que no tuviera oportunidad de pedir ayuda a nadie, ni de gritar nombres, ni de armar un lío divino.
-
-Mis hombres quedaron como… raros. Aliviados, sí, pero también como con esa sensación de “ok, esto ya no es un juego”.
-
-Y justo ahí vino el problema inmediato: la roca. Porque el cíclope muerto no iba a mover nada.
+# Salir sin aplausos (y sin meterme en problemas gratis)
+Ahí me dio rabia. No con Atenea, conmigo. Porque pensé: listo, hice lo correcto… ¿y ahora cómo salimos?
+Pero no había magia. Tocó hacerlo a lo simple: esperar hasta la mañana nos escondimos, nos calmamos, y cuando las ovejas salieron, hicimos lo de amarrarnos debajo. Eso sí. Funciona igual la diferencia fue el final: nadie gritó, nadie insultó, nadie se puso a celebrar. Yo no quería que ese momento se volviera una historia que viajará sola. No quería que mis hombres fueran contando “¿saben a quién matamos?” como si eso fuera un trofeo.
+En la historia normal, el cíclope vivo termina gritando, pidiendo venganza, rezando a Poseidón, y ya queda todo marcado aquí no. Aquí no hubo “llamado” directo y lo sentí de una forma muy simple: el mar seguía siendo peligroso, pero ya no sentía que me estuviera persiguiendo por nombre y apellido eso sí: mis hombres siguieron siendo mis hombres. Llegamos donde Eolo, el de los vientos, y él nos dio el saco con los vientos guardados para ayudarnos a llegar yo estaba feliz porque de verdad pensé: listo, esta vez sí y como a dos pasos de Ítaca… mis hombres abrieron el saco porque pensaron que yo estaba guardando algo valioso. Eso me dio una frustración horrible. Porque fue como: yo controlé mi ego… pero no puedo controlar el de todos el viento nos devolvió, nos sacudió, y yo ahí dije: bueno, entonces esto igual va a ser difícil, solo que de otra forma.
